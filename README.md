@@ -6,6 +6,6 @@ I have more experience in the trading department so if anyone needs some insight
 
 
 📫 my contacts are : 
-                    /n
-                    instagram : @tradingmouse /n
+                    
+                    instagram : @tradingmouse 
                     linkedin : https://www.linkedin.com/in/vincent-reynaert-6a5640158/
