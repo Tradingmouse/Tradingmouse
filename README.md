@@ -1,8 +1,8 @@
 👋  Hello there 👋
 
 I’m interested in trading 📈 , analitics 💻  and started a journey of learning how to code 🤓
-Currently learning in Tradehouse and Udemy (Tradehouse for trading, Udemy for coding)
-I have more experience in the trading department so if anyone needs some insight on that i am always down for a collab.
+currently going back to school to hone my skills as a webdeveloper and I invite you to follow my journey to become a full fledged webdeveloper.
+With a background in finance and bussines development, the passion for technology is there, so let's go on a journey together.
 
 
 📫 my contacts are : 
